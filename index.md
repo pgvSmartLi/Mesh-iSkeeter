@@ -1,11 +1,3 @@
-## Welcome to Mesh iSkeeter
+我的账号和应用被骗子盗了，请勿买！！！！！！！
 
-![Image](icon-1024.png)
-
-If you have any questions, you can either leave a message or send the questions to our email address.
-
-We will answer them for you in the first time.
-
-### Address: pgvbkhj@163.com
-
-Thank you!
+我的APP ID 被骗子修改了，若买家知道APP ID ,请联系失主：kobvin@163.com ！！！！！！！
